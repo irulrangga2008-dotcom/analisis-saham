@@ -1,0 +1,2 @@
+# analisis-saham
+bismillla
